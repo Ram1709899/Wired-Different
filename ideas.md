@@ -1,4 +1,4 @@
-1. You Were Manipulated Before You Could Speak
+You Were Manipulated Before You Could Speak
 
 The Truth About Why You Want to Be Liked
 
